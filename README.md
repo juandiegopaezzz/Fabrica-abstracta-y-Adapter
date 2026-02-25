@@ -1,1 +1,1 @@
-Trabajo desarrollado por JUAN DIEGO RONCANCIO PAEZ-20242020165, EL proyecto esta en "master".
+Trabajo desarrollado por JUAN DIEGO RONCANCIO PAEZ-20242020165.
